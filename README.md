@@ -1,1 +1,1 @@
-# SLB-Palmar-s-Futebol
+# SLB-Palmarés-Futebol
